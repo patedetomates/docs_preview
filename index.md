@@ -232,3 +232,6 @@ Key staff include:
 [https://www.meridia.land/](https://www.meridia.land/)
 
 **Belterra** is based in Brazil and seeks to recover degraded areas throughout Brazil, with priority on small and medium-sized rural properties. Belterra specializes in agroforestry crops, a system that considers all stages of ecological succession, optimizing land use by cultivating forest for the future and food for the present at the same time. Belterra specifically seeks to work on logistics chain development and alliance with purchasing companies to promote crop traceability and guarantee of production sustainability - this pilot project is an important step towards this goal.[https://www.belterra.com.br/](https://www.belterra.com.br/)
+
+**Contact**
+For more information or to send feedback please contact Gilad Goren (cofounder/partnerships, Bitgreen) at gilad@bitgreen.org
